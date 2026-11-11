@@ -1,4 +1,4 @@
-# Hi, I'm Arriana Walker 👋
+# Hi, I'm Arriana 👋
 
 I'm a Marketing student at the University of South Florida's Muma College of Business, interested in the intersection of marketing, data analytics, and business technology.
 
